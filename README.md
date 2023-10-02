@@ -1,0 +1,1 @@
+# Mcdonald-s-case-study-Market-Segmentation
